@@ -1,0 +1,3 @@
+- https://www.ebay.com/sch/i.html?_from=R40&_nkw=playstation+broken+disk+drive&_sacat=0&LH_TitleDesc=0&_sop=15&rt=nc&LH_BIN=1
+- https://www.ebay.com/sch/i.html?_from=R40&_nkw=PlayStation+3+Slim&_sacat=0&rt=nc&LH_Sold=1&LH_Complete=1
+- https://www.ebay.com/itm/Sony-PlayStation-3-CECH-3001A-160GB-Game-Console-4-85-AS-IS-Disc-Drive-Broken/124130109465?hash=item1ce6bb2819%3Ag%3AGsMAAOSwqptee674&LH_BIN=1
